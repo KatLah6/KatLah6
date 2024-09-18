@@ -1,4 +1,4 @@
-# Introduction
+# About myself
 
 Hei, I am Katyuska Lahdemaki, currently studying of Industrial Information Technology at LAB university in Lahti 
 
