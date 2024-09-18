@@ -1,6 +1,6 @@
-# Katyuska-Lahdemaki
+# Introduction
 
-Hei, I am a student of Industrial Information Technology at LAB university in Lahti 
+Hei, I am Katyuska Lahdemaki, currently studying of Industrial Information Technology at LAB university in Lahti 
 
 I am interested on new technologies and sustaniability. However I dont have a backround of studies in this field.
 
@@ -10,6 +10,6 @@ Now I am interest in learning and practice my solving problem skills; reasoning 
 
 I would like to work in a proactive and friendly environment in the future, where I can share my knowlegde and collaborate with my team in working on different projects.
 
-My language skills: English (professional C1) Spanish (Native C2) Finnish (A2)
+My language skills: English ; Spanish ; Finnish (A2)
 
 My hobbies are: Tennis, Reading; Trekking; Movies; Wellbeing; Dancing.
