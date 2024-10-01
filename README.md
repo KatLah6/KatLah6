@@ -13,3 +13,5 @@ I would like to work in a proactive and friendly environment in the future, wher
 My language skills: English ; Spanish ; Finnish (A2)
 
 My hobbies are: Tennis, Reading; Trekking; Movies; Wellbeing; Dancing.
+
+Linkedin: https://www.linkedin.com/in/kat-lah/
