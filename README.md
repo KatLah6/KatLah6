@@ -1,5 +1,3 @@
-# Katyuska Lahdemaki
-
 Hei, I am Katyuska Lahdemaki, currently studying of Industrial Information Technology at LAB university in Lahti 
 
 I am interested on new technologies and sustaniability. However I dont have a backround of studies in this field.
