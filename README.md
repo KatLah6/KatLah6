@@ -1,16 +1,20 @@
 ## Hi there 👋
+🌱 I am currently studying of Industrial Information Technology at LAB university in Lahti 
 
+I am interested on new technologies and sustaniability. However I dont have a backround of studies in this field.
+
+When I had some searching in UX/UI design and find fascinating what you can create and what is behind the scenes of every website and app we navegate everyday. 
+
+Now I am interest in learning and practice my solving problem skills; reasoning thinking and IT skills.
+
+I would like to work in a proactive and friendly environment in the future, where I can share my knowlegde and collaborate with my team in working on different projects.
+
+My language skills: English ; Spanish ; Finnish (A2)
+
+My hobbies are: Tennis, Reading; Trekking; Movies; Wellbeing; Dancing.
+
+📫 Linkedin: https://www.linkedin.com/in/kat-lah/
 <!--
 **KatLah6/KatLah6** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
