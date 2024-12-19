@@ -9,7 +9,7 @@ Now I am interest in learning and practice my solving problem skills; reasoning 
 
 I aspire to work in a proactive and friendly environment where I can share my knowledge, collaborate with my team, and contribute to a variety of projects.
 
-My language skills: English (C1); Spanish (Native); Finnish (A1)
+My language skills: English (C1); Spanish (Native); Finnish (A2)
 
 My hobbies include: Tennis, reading, trekking, movies, wellbeing, dancing, and exploring the science behind cooking.
 
